@@ -1,4 +1,4 @@
-# 
+# Enhance MindManager for Windows with MindManager for Windows best Utility: collaboration & offline-access, the #1 utility. Includes collaboration and offline-access for a smoother
 
 
 
